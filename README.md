@@ -19,4 +19,4 @@ No technical requirements, but you'll need to refrain from punching something ev
 
 ## Todo
 
-Where do I start? More Angela Hamiltons, fewer Kim Kardashians.
+Where do I start? More Margaret Hamiltons, fewer Kim Kardashians.
